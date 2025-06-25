@@ -7,4 +7,4 @@
 3. We are not liable for any damages arising from the use of the app.
 4. You agree not to misuse the app or attempt unauthorized access.
 
-If you have any questions, please contact us at: keerthana.mh29@gmail.com
+If you have any questions, please contact us at: keerthana.mh29@gmail.com 
